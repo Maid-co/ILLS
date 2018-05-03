@@ -1,2 +1,2 @@
-# ills
-For illustrator
+# Illustrator
+For illustrator "Haryuningtyas Ramadhani Putri"
